@@ -1,0 +1,4 @@
+## The Renegade Girls Tinkering Club
+The Renegade Girls Tinkering Club run exciting summer camps in San Francisco for kids ages 5-11 years old. From the minute our club members walk in, they are surrounded by successful, smart, trailblazing role models who encourage them to pursue their love of science, exploration and building. With gender specific camps, our kids learn in safe spaces.
+
+We founded the Renegade Girls Tinkering Club to inspire girls to love tinkering and making! Girls face unique challenges in STEM fields, and the club was created to encourage them in a supportive, safe environment centered on community building and lots and lots of fun! We learn by doing and think with our hands, building, trying, designing, repeating. In 2017 we decided to create boys only and coed programming, welcoming our future allies and coworkers.
